@@ -1,1 +1,1 @@
-I Think Therefor Blog
+I Think Therefore Blog
